@@ -1,4 +1,4 @@
-## Download Planetarianism.odt and read it in OpenOffice
+## Download all of my songs for free here in my github repo
 
 <!--
 **lilacdeezl/lilacdeezl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
